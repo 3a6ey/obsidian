@@ -1,2 +1,2 @@
 # obsidian
-nothing special
+shoutout to https://github.com/deividcomsono
