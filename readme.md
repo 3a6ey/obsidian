@@ -1,1 +1,1 @@
-[shoutout to this guy](https://github.com/deividcomsono)
+[hi](https://github.com/deividcomsono)
